@@ -1,0 +1,7 @@
+The Catholic Church reveals the truth to the world - they have been hiding the origin of humanity in order to shepherd us towards returning to our homeworld, Yaweh. It was expected to take far longer however the recent centuries of advances from having superpowers has allowed them to progress to the point where their level of technology could repair the crashed spacecraft.
+
+After a few decades go by, the spacecraft is finally reactivated and they receive a signal from Yaweh. They have been waiting for the explorers to return home and have sent countless records of their descendants messages and hopes and dreams over the eons. The spacecraft departs for Yaweh with a crew of hopeful explorers.
+
+Using a teleportation style FTL, they reach their destination effortlessly but find nothing there, no planet and not even a star system. A dark shadow engulfs the ship and shrouds them from space, the ship begins to be consumed by the darkness; atoms begin to disintegrate and vanish into nothing.
+
+A panicked crew member stumbles upon a circle of priests chanting around a pentagram made in the blood of a dead priest lying on the floor. The priests rejoice in joy as they are torn to pieces by their dark god, whose call they began hearing decades ago when they secretly activated the ship on their own prior to finishing the rest of the repairs.
