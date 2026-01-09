@@ -1,7 +1,7 @@
 # Echoes: Chapter 3
 
-*Inspired by Phillip K. Dick*  
-*Originally posted to [paulbrzeski.com](https://paulbrzeski.com/2026/01/05/echoes-chapter-1/)*
+*Inspired by Bram Stoker*  
+*Originally posted to [paulbrzeski.com](https://paulbrzeski.com/2026/01/06/echoes-chapter-3/)*
 
 ---
 Over the years, a number of patients who attended the St Anne Psychiatric Hospital later died. Detective Chuck Irons is pulling a late one in the records department tonight. He saw something tonight he can’t shake, but he doesn’t exactly know what. Just a feeling that something about the most recent murder investigation reminds him of some old cold cases.
