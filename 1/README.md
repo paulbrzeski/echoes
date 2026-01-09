@@ -1,6 +1,7 @@
----
-title: Chevron 1 Encoded: Phillip K. Dick
----
+### Inspired by Phillip K. Dick_
+### Originally posted to https://paulbrzeski.com/2026/01/05/echoes-chapter-1/
+
+# Echoes: Chapter 1
 
 Noah Freeman is your average teenager, high schooler by day and vigilante wizard by night. Fighting the Pollution Illuminati is hard, but it’s worth it to defeat the most evil overlords in all of space and time.
 
