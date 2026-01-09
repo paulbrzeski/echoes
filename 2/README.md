@@ -1,7 +1,7 @@
 # Echoes: Chapter 2
 
 *Inspired by Dan Brown*  
-*Originally posted to [paulbrzeski.com]([https://paulbrzeski.com/2026/01/05/echoes-chapter-1/](https://paulbrzeski.com/2026/01/05/echoes-chapter-2/))*
+*Originally posted to [paulbrzeski.com](https://paulbrzeski.com/2026/01/05/echoes-chapter-2/)*
 
 ---
 
